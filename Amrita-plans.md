@@ -9,4 +9,4 @@ I'm watching the Jujutsu Kaisen 0 movie with friends on Saturday. I'm getting br
 
 Aidan Angus-Henry
 
-I went to the farmers market on Saturday to get a cinammon roll, then went home and played video games all day. On Sunday I'm going to do some reading and catch up on homework.
+I went to the farmers market on Saturday to get a cinammon roll, then went home and played video games and ate food. On Sunday I'm going to do some reading and catch up on homework.
